@@ -1,1 +1,0 @@
-# Opakovani_Dedicnost
